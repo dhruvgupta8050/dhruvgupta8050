@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **dhruvgupta8050@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fXyZ4ZI9HNLe0ceRy4wdaleGTHWzNMxD/view?usp=sharing](https://drive.google.com/file/d/1fXyZ4ZI9HNLe0ceRy4wdaleGTHWzNMxD/view?usp=sharing)
+- 📄 Know about my experiences 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
